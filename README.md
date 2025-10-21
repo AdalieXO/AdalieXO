@@ -1,16 +1,19 @@
-## Hi there 👋
+𝙰𝚍𝚊𝚕𝚒𝚎:
+About meee
 
-<!--
-**AdalieXO/AdalieXO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Likes:
+▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+✩ Playing Guitar
+✮ Coding
+✩ Developing apps and games
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Dislikes:
+▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+✩ Syntax and Logic errors
+✮ 
+✩ Developing apps and games
+
+ᓚᘏᗢ ᶻ z Z
+
+╰┈➤ @AdalieXO has logged off
