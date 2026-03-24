@@ -1,6 +1,6 @@
 ![77d8fdb087ff6460f6e84a75223381e9-ezgif com-resize-PC7639](https://github.com/user-attachments/assets/575d8eff-b7a4-400a-879a-fbe52443ea0b)
 ![ddk2dly-06545e58-8a23-4360-8a65-a596eb2b81d2](https://github.com/user-attachments/assets/8ad960a5-6629-4c08-8e5d-9f97a246bfad) <img align="right" width="150" height="150" src="https://github.com/AdalieXO/AdalieXO/blob/fbbd6f3d0eacbc18e9aa51145c750cb3ed45ab13/0023-trans-pride.gif"> <img align="right" width="150" height="150" src="https://github.com/AdalieXO/AdalieXO/blob/bfc513f1cfdb13da4d155ee78318ecbcb4c81e71/0074-pan.gif"> <br>
-𝙰𝚍𝚊𝚕𝚒𝚎: <br> 
+𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ <br> 
 About meee!!: <br> 
 ![blinkiesCafe-GE](https://github.com/user-attachments/assets/27b468ee-6c06-4e3e-9bd4-b152575a880d)
 
@@ -11,16 +11,36 @@ About meee!!: <br>
 ![blinkiesCafe-vm](https://github.com/user-attachments/assets/68c3280c-bf20-46a1-a507-8fd08022ccb2)
 
 
-Likes: <br>
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃ <br>
-✩ Playing Guitar <br>
-✮ Coding <br>
-✩ Developing apps and games <br>
-<br>
-Dislikes: <br>
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃ <br>
-✩ Syntax and Logic errors <br>
-✮ Social interactions<br>
+⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
+‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
+  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <br>
+. .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
+✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
+. .┊ 𝄞𝄢࿔ Name : Adalie<br>
+. .┊꩜｡𐙚 Country : 🇬🇧 <br>
+. .┊⋆˙ ☘︎ Age : <18 <br>
+. .┊ᯓ⭑ Pronouns : She/They <br>
+. .┊*:･ Gender : Female🏳️‍⚧️ <br>
+. .┊ ࣪˖ ִֶָ𐀔 MBTI : INFP-T <br>
+. .╰────────────  ˎˊ˗ <br>
+. .╭──────────── ˎˊ˗ <br>
+✿┊ᴍʏ ғᴀᴠᴏᴜʀɪᴛᴇ.. ₊˚⊹ <br>
+. .┊ ⊱  ۫ ׅ ࿔ Colour(s) : <br>
+. .┊꩜｡𐙚 Media(s) : Lucky star<br>
+. .┊⋆˙ ☘︎ Animal(s) : <br>
+. .┊ᯓ⭑ Food(s) : <br>
+. .┊*:･ Drink(s) : <br>
+. .┊ ࣪˖ ִֶָ𐀔 Sport(s) : <br>
+. .╭──────────── ˎˊ˗ <br>
+✿┊ᴍᴏʀᴇ! ₊˚⊹ <br>
+. .┊ ◟❀ᮬ࿔ Birthday : <br>
+. .┊꩜｡𐙚 Timezone : <br>
+. .┊⋆˙ ☘︎ Hobby(s) : <br>
+. .┊ᯓ⭑ Likes : <br>
+. .┊*:･ Dislikes : <br>
+. .┊ ࣪˖ ִֶָ𐀔 Extra ! : <br> 
+. .╰─────────────  ✮⋆˙ˎˊ˗
+⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ![0275-stressed](https://github.com/user-attachments/assets/e2448589-8eb0-46f2-92d9-373c9bd5f415)
 <br>
 ᓚᘏᗢ ᶻ z Z <br>
