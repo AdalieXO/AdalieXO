@@ -4,8 +4,9 @@ About meee!!: <br> <img align="right" width="150" height="150" src="https://gith
 ![blinkiesCafe-GE](https://github.com/user-attachments/assets/27b468ee-6c06-4e3e-9bd4-b152575a880d)
 
 <br>
-![0061-pinkcomputer](https://github.com/user-attachments/assets/46053ac2-c96e-4a17-87b9-aca1f64661e4)
-![blinkiesCafe-vm](https://github.com/user-attachments/assets/93911055-31ae-4c1e-a408-f60ae2401de5)
+![0061-pinkcomputer](https://github.com/user-attachments/assets/e956d89c-1321-4106-b279-0ad7797f06ae)
+![blinkiesCafe-vm](https://github.com/user-attachments/assets/68c3280c-bf20-46a1-a507-8fd08022ccb2)
+
 
 Likes: <br>
 ▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃ <br>
@@ -22,3 +23,4 @@ Dislikes: <br>
 ᓚᘏᗢ ᶻ z Z <br>
 ╰┈➤ @AdalieXO has logged off<br>
 ![blinkiesCafe-5i](https://github.com/user-attachments/assets/fb492dc6-c48c-406b-89cf-8dda1155c5a9)
+![0014-pride](https://github.com/user-attachments/assets/4db5c0bd-3891-4eb9-91f3-46e295b8b329)
