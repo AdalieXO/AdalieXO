@@ -1,19 +1,17 @@
-𝙰𝚍𝚊𝚕𝚒𝚎:
-About meee
+𝙰𝚍𝚊𝚕𝚒𝚎: <br>
+About meee <br>
+<br>
 
-
-Likes:
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
-✩ Playing Guitar
-✮ Coding
-✩ Developing apps and games
-
-Dislikes:
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
-✩ Syntax and Logic errors
-✮ 
-✩ Developing apps and games
-
-ᓚᘏᗢ ᶻ z Z
-
-╰┈➤ @AdalieXO has logged off
+Likes: <br>
+▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃ <br>
+✩ Playing Guitar <br>
+✮ Coding <br>
+✩ Developing apps and games <br>
+<br>
+Dislikes: <br>
+▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃ <br>
+✩ Syntax and Logic errors <br>
+✮ Social interactions <br>
+<br>
+ᓚᘏᗢ ᶻ z Z <br>
+╰┈➤ @AdalieXO has logged off<br>
