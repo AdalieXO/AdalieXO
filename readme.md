@@ -17,7 +17,7 @@ My Achievements (Hidden From Profile):<br>
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
-  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <br>
+  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width="150" height="150" src="https://cdn3.emoji.gg/emojis/622309-charmykitty.gif"> <br>
 . .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
 ✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
 . .┊ 𝄞𝄢࿔ Name : Adalie<br>
