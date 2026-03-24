@@ -25,7 +25,7 @@ About meee!!: <br>
 . .╰────────────  ˎˊ˗ <br>
 . .╭──────────── ˎˊ˗ <br>
 ✿┊ᴍʏ ғᴀᴠᴏᴜʀɪᴛᴇ.. ₊˚⊹ <br>
-. .┊ ⊱  ۫ ׅ ࿔ Colour(s) : <br>
+. .┊ ⊱  ۫ ׅ ࿔ Colour(s) : Pink, green, Teal, Black, White<br>
 . .┊꩜｡𐙚 Media(s) :  <a href="https://anidb.net/anime/4777">
 <img src="https://github.com/AdalieXO/AdalieXO/blob/dd7a3c416cc88ba668ff0780219f0174cb007991/OIP%20(2).webp" 
   alt="Lucky Star" 
@@ -36,17 +36,17 @@ About meee!!: <br>
   alt="Neon Genesis Evangelion" 
   style="width:25px;height:auto;">
 </a> <br>
-. .┊⋆˙ ☘︎ Animal(s) : <br>
-. .┊ᯓ⭑ Food(s) : <br>
-. .┊*:･ Drink(s) : <br>
-. .┊ ࣪˖ ִֶָ𐀔 Sport(s) : <br>
+. .┊⋆˙ ☘︎ Animal(s) : ˗ˏˋ ꒰ Pandas ♡ ꒱ ˎˊ˗, Red Pandas, Ermines, Ferrets, Cats, Foxes, Arctic Foxes, Raccoons<br> 
+. .┊ᯓ⭑ Food(s) : Sushi, Pocky, <br>
+. .┊*:･ Drink(s) : Monster, Ramune, Iced Tea/Coffee<br>
+. .┊ ࣪˖ ִֶָ𐀔 Sport(s) : Skateboarding<br>
 . .╭──────────── ˎˊ˗ <br>
 ✿┊ᴍᴏʀᴇ! ₊˚⊹ <br>
-. .┊ ◟❀ᮬ࿔ Birthday : <br>
-. .┊꩜｡𐙚 Timezone : <br>
-. .┊⋆˙ ☘︎ Hobby(s) : <br>
-. .┊ᯓ⭑ Likes : <br>
-. .┊*:･ Dislikes : <br>
+. .┊ ◟❀ᮬ࿔ Birthday : 07/04/####<br>
+. .┊꩜｡𐙚 Timezone : GMT<br>
+. .┊⋆˙ ☘︎ Hobby(s) : Gundam, Guitar, Coding<br>
+. .┊ᯓ⭑ Likes : Games and Making games/apps<br>
+. .┊*:･ Dislikes : Social Interactions<br>
 . .┊ ࣪˖ ִֶָ𐀔 Extra ! : <br> 
 . .╰─────────────  ✮⋆˙ˎˊ˗
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
