@@ -26,7 +26,9 @@ About meee!!: <br>
 . .╭──────────── ˎˊ˗ <br>
 ✿┊ᴍʏ ғᴀᴠᴏᴜʀɪᴛᴇ.. ₊˚⊹ <br>
 . .┊ ⊱  ۫ ׅ ࿔ Colour(s) : <br>
-. .┊꩜｡𐙚 Media(s) : Lucky star<br>
+. .┊꩜｡𐙚 Media(s) :  <a href="https://myanimelist.net/anime/1887/Lucky%E2%98%86Star/">
+<img src="https://github.com/AdalieXO/AdalieXO/blob/dd7a3c416cc88ba668ff0780219f0174cb007991/OIP%20(2).webp" alt="luckystar" style="width:25px;height:auto;">
+</a> Lucky star<br>
 . .┊⋆˙ ☘︎ Animal(s) : <br>
 . .┊ᯓ⭑ Food(s) : <br>
 . .┊*:･ Drink(s) : <br>
