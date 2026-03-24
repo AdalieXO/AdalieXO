@@ -26,7 +26,7 @@ About meee!!: <br>
 . .╭──────────── ˎˊ˗ <br>
 ✿┊ᴍʏ ғᴀᴠᴏᴜʀɪᴛᴇ.. ₊˚⊹ <br>
 . .┊ ⊱  ۫ ׅ ࿔ Colour(s) : <br>
-. .┊꩜｡𐙚 Media(s) :  <a href="https://anidb.net/perl-bin/animedb.pl?show=anime&aid=4777">
+. .┊꩜｡𐙚 Media(s) :  <a href="https://anidb.net/anime/4777">
 <img src="https://github.com/AdalieXO/AdalieXO/blob/dd7a3c416cc88ba668ff0780219f0174cb007991/OIP%20(2).webp" 
   alt="Lucky Star" 
   style="width:25px;height:auto;">
