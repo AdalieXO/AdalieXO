@@ -32,9 +32,9 @@ About meee!!: <br>
   alt="Lucky Star" 
   style="width:25px;height:auto;">
 </a> 
-<a href="https://anidb.net/perl-bin/animedb.pl?show=anime&aid=4777">
-<img src="https://github.com/AdalieXO/AdalieXO/blob/dd7a3c416cc88ba668ff0780219f0174cb007991/OIP%20(2).webp" 
-  alt="Lucky Star" 
+<a href="https://anidb.net/anime/22">
+<img src="https://github.com/AdalieXO/AdalieXO/blob/e557257f42ed0880504b0a0eb2afa5f08e26cee6/OIP%20(3).webp" 
+  alt="Neon Genesis Evangelion" 
   style="width:25px;height:auto;">
 </a> 
 <br>
