@@ -4,11 +4,14 @@
 About meee!!: <br> 
 ![blinkiesCafe-GE](https://github.com/user-attachments/assets/27b468ee-6c06-4e3e-9bd4-b152575a880d)
 <br>
-My Achievements (Hidden From Profile):<br>
-
+╭─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╮ <br>
+  ‎ ‎ ‎‎My Achievements (Some hidden from profile):<br>
 <img width="75" height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f67616c6178792d627261696e2d676f6c642e7" src="https://github.com/user-attachments/assets/1f804b93-9b2e-4f50-9cba-4588106d3004" />
 <img width="75" height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f70756c6c2d736861726b2d64656661756c742" src="https://github.com/user-attachments/assets/4b7d87fb-a7e3-494c-8633-f5389f25226a" />
 <img width="75" height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f717569636b647261772d64656661756c742e7" src="https://github.com/user-attachments/assets/0a8ba2ef-4dab-46b3-87c9-226fa173a9fd" />
+<img width="75" height="75" alt="public-sponsor-default-9fa68986b057" src="https://github.com/user-attachments/assets/c7769630-b50d-48ac-836c-0599863a40fb" /> <br>
+╰─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╯
+<br>
 
 ![0061-pinkcomputer](https://github.com/user-attachments/assets/e956d89c-1321-4106-b279-0ad7797f06ae)
 
