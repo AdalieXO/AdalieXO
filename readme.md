@@ -44,7 +44,10 @@ About meee!!: <br>
   style="width:25px;height:auto;">
 </a> <br>
 . .┊⋆˙ ☘︎ Animal(s) : ˗ˏˋ ꒰ Pandas ♡ ꒱ ˎˊ˗, Red Pandas, Ermines, Ferrets, Cats, Foxes, Arctic Foxes, Raccoons<br> 
-. .┊ᯓ⭑ Food(s) : Sushi, Pocky, <br>
+. .┊ᯓ⭑ Food(s) : 
+Sushi, <img src="https://cdn3.emoji.gg/emojis/3036-onigiri.gif" alt="Onigiri.gif" style="width:12.5px;height:auto;">
+Pocky <img src="https://cdn3.emoji.gg/emojis/3144-pocky.gif" alt="Pocky.gif" style="width:12.5px;height:auto;">, 
+Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt="Caramelflan.gif" style="width:12.5px;height:auto;"> <br>
 . .┊*:･ Drink(s) : Monster, Ramune, Iced Tea/Coffee<br>
 . .┊ ࣪˖ ִֶָ𐀔 Sport(s) : Skateboarding<br>
 . .╭──────────── ˎˊ˗ <br>
