@@ -15,7 +15,7 @@ About meee!!: <br>
 
 ![0061-pinkcomputer](https://github.com/user-attachments/assets/e956d89c-1321-4106-b279-0ad7797f06ae)
 
-
+<img src="https://github.com/AdalieXO/AdalieXO/blob/96ac8c4bbc570eeff32ce6472c65afe92d295094/blinkiesCafe-vm.gif">
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
