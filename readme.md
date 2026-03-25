@@ -64,4 +64,3 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 ᓚᘏᗢ ᶻ z Z <br>
 ╰┈➤ @AdalieXO has logged off<br>
 ![blinkiesCafe-5i](https://github.com/user-attachments/assets/fb492dc6-c48c-406b-89cf-8dda1155c5a9)
-![0014-pride](https://github.com/user-attachments/assets/4db5c0bd-3891-4eb9-91f3-46e295b8b329)
