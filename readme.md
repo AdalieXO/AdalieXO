@@ -15,7 +15,6 @@ About meee!!: <br>
 
 ![0061-pinkcomputer](https://github.com/user-attachments/assets/e956d89c-1321-4106-b279-0ad7797f06ae)
 
-![blinkiesCafe-vm](https://github.com/user-attachments/assets/68c3280c-bf20-46a1-a507-8fd08022ccb2)
 
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
