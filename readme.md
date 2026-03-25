@@ -23,7 +23,7 @@ About meee!!: <br>
 . .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
 ✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
 . .┊ 𝄞𝄢࿔ Name : Adalie<br>
-. .┊꩜｡𐙚 Country : 🇬🇧 <br>
+. .┊꩜｡𐙚 Country : <img width=25px height=auto src="https://cdn3.emoji.gg/emojis/76564-uk-flag.png"> <img width=20px height=auto src="https://cdn3.emoji.gg/emojis/6871-portugal.png"> <br>
 . .┊⋆˙ ☘︎ Age : <18 <br>
 . .┊ᯓ⭑ Pronouns : She/They <br>
 . .┊*:･ Gender : Female🏳️‍⚧️ <br>
