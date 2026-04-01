@@ -45,7 +45,7 @@
   alt="Neon Genesis Evangelion" 
   style="width:25px;height:auto;">
 </a> <br>
-. .┊⋆˙ ☘︎ Animal(s) : ˗ˏˋ ꒰ Pandas ♡ ꒱ ˎˊ˗, Red Pandas, Ermines, Ferrets, Cats, Foxes, Arctic Foxes, Raccoons<br> 
+. .┊⋆˙ ☘︎ Animal(s) : ˗ˏˋ ꒰ Pandas ♡ ꒱ ˎˊ˗, Ermines, Ferrets, Cats, Arctic Foxes, Raccoons<br> 
 . .┊ᯓ⭑ Food(s) : 
 Sushi, <img src="https://cdn3.emoji.gg/emojis/3036-onigiri.gif" alt="Onigiri.gif" style="width:12.5px;height:auto;">
 Pocky <img src="https://cdn3.emoji.gg/emojis/3144-pocky.gif" alt="Pocky.gif" style="width:12.5px;height:auto;">, 
