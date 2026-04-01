@@ -1,7 +1,8 @@
 ![1d32cdd59cc31aa291ba4f46e7a854ed](https://github.com/user-attachments/assets/74aca698-56cd-4b43-a613-52cd5faf34d1)
 ![ddk2dly-06545e58-8a23-4360-8a65-a596eb2b81d2](https://github.com/user-attachments/assets/8ad960a5-6629-4c08-8e5d-9f97a246bfad) <img align="right" width="150" height="150" src="https://github.com/AdalieXO/AdalieXO/blob/fbbd6f3d0eacbc18e9aa51145c750cb3ed45ab13/0023-trans-pride.gif"> <img align="right" width="150" height="150" src="https://github.com/AdalieXO/AdalieXO/blob/bfc513f1cfdb13da4d155ee78318ecbcb4c81e71/0074-pan.gif"> <br>
+>  !Use light mode for a better view! [🌓](https://github.com/settings/appearance) <br>
+>
 𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ <br> 
-About meee!!: <br> 
 ![blinkiesCafe-GE](https://github.com/user-attachments/assets/27b468ee-6c06-4e3e-9bd4-b152575a880d)
 <br>
 ╭─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╮ <br>
