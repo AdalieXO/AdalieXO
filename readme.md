@@ -60,7 +60,7 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 . .┊ᯓ⭑ Likes : Games and Making games/apps<br>
 . .┊*:･ Dislikes : Social Interactions<br>
 . .┊ ࣪˖ ִֶָ𐀔 Extra ! : I have ADHD, Tourettes, Anxiety and Social Anxiety.<br> 
-. .╰─────────────  ✮⋆˙ˎˊ˗
+. .╰─────────────  ✮⋆˙ˎˊ˗ <br>
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ![0275-stressed](https://github.com/user-attachments/assets/e2448589-8eb0-46f2-92d9-373c9bd5f415)
 <br>
