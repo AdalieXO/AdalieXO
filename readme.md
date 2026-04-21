@@ -8,11 +8,11 @@
 <br>
 ╭─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╮ <br>
   ‎ ‎  ‎ ‎  <img height=25px width=auto src="https://github.com/user-attachments/assets/46ec68e1-84c0-432e-8678-a2acf5338ea7">  <br>
-<img width="75" height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f67616c6178792d627261696e2d676f6c642e7" src="https://github.com/user-attachments/assets/1f804b93-9b2e-4f50-9cba-4588106d3004" />
-<img width="75" height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f70756c6c2d736861726b2d64656661756c742" src="https://github.com/user-attachments/assets/4b7d87fb-a7e3-494c-8633-f5389f25226a" />
-<img width="75" height="75" alt="yolo-default-be0bbff04951" src="https://github.com/user-attachments/assets/95401700-38b7-42c0-89d1-50ce27ce856b" />
-<img width="75" height="75" alt="public-sponsor-default-9fa68986b057" src="https://github.com/user-attachments/assets/c7769630-b50d-48ac-836c-0599863a40fb" /> <br>
-<img width="75" height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f717569636b647261772d64656661756c742e7" src="https://github.com/user-attachments/assets/0a8ba2ef-4dab-46b3-87c9-226fa173a9fd" /> <br>
+<img width=auto height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f67616c6178792d627261696e2d676f6c642e7" src="https://github.com/user-attachments/assets/1f804b93-9b2e-4f50-9cba-4588106d3004" />
+<img width=auto height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f70756c6c2d736861726b2d64656661756c742" src="https://github.com/user-attachments/assets/4b7d87fb-a7e3-494c-8633-f5389f25226a" />
+<img width=auto height="75" alt="yolo-default-be0bbff04951" src="https://github.com/user-attachments/assets/95401700-38b7-42c0-89d1-50ce27ce856b" />
+<img width=auto height="75" alt="public-sponsor-default-9fa68986b057" src="https://github.com/user-attachments/assets/c7769630-b50d-48ac-836c-0599863a40fb" /> <br>
+<img width=auto height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f717569636b647261772d64656661756c742e7" src="https://github.com/user-attachments/assets/0a8ba2ef-4dab-46b3-87c9-226fa173a9fd" /> <br>
 ╰─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╯
 <br>
 
@@ -22,7 +22,7 @@
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
-  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width="250" height="250" src="https://cdn3.emoji.gg/emojis/622309-charmykitty.gif"> <br>
+  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width=auto height="250" src="https://cdn3.emoji.gg/emojis/622309-charmykitty.gif"> <br>
 . .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
 ✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
 . .┊ 𝄞𝄢࿔ Name : Adalie<br>
