@@ -1,5 +1,7 @@
 >  !Use light mode for a better view! [💡](https://github.com/settings/appearance) <br>
->
+
+![Profile view counter](https://komarev.com/ghpvc/?username=adaliexo)
+
 <img alt="༝  ⠀⠀ ݁︎ ︎⠀⠀ __⠀݂" src="https://github.com/user-attachments/assets/f530fc1c-7d95-4866-b089-9afd95c64a01" /> <br>
 <div align="center">
  
@@ -87,5 +89,4 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 <br>
 ᓚᘏᗢ ᶻ z Z <br>
 ╰┈➤ @AdalieXO has logged off<br>
-![Profile view counter](https://komarev.com/ghpvc/?username=adaliexo) <br>
 <img width="1080" height=auto alt="download" src="https://github.com/user-attachments/assets/295b91ae-f757-471b-bb4b-ce0c9a9c95ef" />
