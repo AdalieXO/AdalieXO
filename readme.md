@@ -1,11 +1,30 @@
 >  !Use light mode for a better view! [💡](https://github.com/settings/appearance) <br>
 >
 <img alt="༝  ⠀⠀ ݁︎ ︎⠀⠀ __⠀݂" src="https://github.com/user-attachments/assets/f530fc1c-7d95-4866-b089-9afd95c64a01" /> <br>
+<div align="center">
+ 
 <img alt="376928-cat-dizzy-spiral" src="https://github.com/user-attachments/assets/51c6de1b-aea9-471c-893c-d083f840e8b7" /><br>
 
 𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ <br> 
+ 
 ![blinkiesCafe-GE](https://github.com/user-attachments/assets/27b468ee-6c06-4e3e-9bd4-b152575a880d)
 <br>
+
+────୨ৎ────<br>
+
+˚ ༘  ೀ Languages. ⋆ ｡˚ <br>
+ <img src="https://skillicons.dev/icons?i=mysql,md,css,html,js,py&theme=light" /> <br>
+ 
+౿ ݁  . Software ︵ ｡ Ꮺ ˚ <br>
+ <img src="https://skillicons.dev/icons?i=github,ps,azure,vscode,robloxstudio,obsidian,figma,git,sketchup&theme=light" /> <br>
+ 
+⋮  ⌗  . ˚ ┆   OS    ᶻ  𝗓  𐰁 ˚ <br>
+ <img src="https://skillicons.dev/icons?i=arch,kali,apple,linux,windows&theme=light" /> <br>
+  ”‧˚꒰ The End ୭ ˚. <br>
+  
+ ────୨ৎ────<br>
+
+ <br>
 ╭─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╮ <br>
   ‎ ‎  ‎ ‎  <img height=25px width=auto src="https://github.com/user-attachments/assets/46ec68e1-84c0-432e-8678-a2acf5338ea7">  <br>
 <img width=auto height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f67616c6178792d627261696e2d676f6c642e7" src="https://github.com/user-attachments/assets/1f804b93-9b2e-4f50-9cba-4588106d3004" />
@@ -19,6 +38,8 @@
 <img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/user-attachments/assets/a6aff4ec-a0da-4f22-862e-68313211ea71" /> <br>
 
 <img width="150" height="20" alt="blinkiesCafe-9Y" src="https://github.com/user-attachments/assets/a1805e5b-3984-4721-99f2-ebc50eac7ed0" />
+
+</div>
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
