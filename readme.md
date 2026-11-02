@@ -1,7 +1,7 @@
 >  !Use light mode for a better view! [💡](https://github.com/settings/appearance) <br>
 >
-![1d32cdd59cc31aa291ba4f46e7a854ed](https://github.com/user-attachments/assets/74aca698-56cd-4b43-a613-52cd5faf34d1)
-![ddk2dly-06545e58-8a23-4360-8a65-a596eb2b81d2](https://github.com/user-attachments/assets/8ad960a5-6629-4c08-8e5d-9f97a246bfad) <img align="right" width="150" height="150" src="https://github.com/AdalieXO/AdalieXO/blob/fbbd6f3d0eacbc18e9aa51145c750cb3ed45ab13/0023-trans-pride.gif"> <img align="right" width="150" height="150" src="https://github.com/AdalieXO/AdalieXO/blob/bfc513f1cfdb13da4d155ee78318ecbcb4c81e71/0074-pan.gif"> <br>
+<img alt="༝  ⠀⠀ ݁︎ ︎⠀⠀ __⠀݂" src="https://github.com/user-attachments/assets/f530fc1c-7d95-4866-b089-9afd95c64a01" /> <br>
+<img alt="376928-cat-dizzy-spiral" src="https://github.com/user-attachments/assets/51c6de1b-aea9-471c-893c-d083f840e8b7" /><br>
 
 𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ <br> 
 ![blinkiesCafe-GE](https://github.com/user-attachments/assets/27b468ee-6c06-4e3e-9bd4-b152575a880d)
@@ -16,13 +16,13 @@
 ╰─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╯
 <br>
 
-![0061-pinkcomputer](https://github.com/user-attachments/assets/e956d89c-1321-4106-b279-0ad7797f06ae)
+<img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/user-attachments/assets/a6aff4ec-a0da-4f22-862e-68313211ea71" /> <br>
 
-<img src="https://github.com/AdalieXO/AdalieXO/blob/96ac8c4bbc570eeff32ce6472c65afe92d295094/blinkiesCafe-vm.gif">
+<img width="150" height="20" alt="blinkiesCafe-9Y" src="https://github.com/user-attachments/assets/a1805e5b-3984-4721-99f2-ebc50eac7ed0" />
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
-  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width=auto height="250" src="https://cdn3.emoji.gg/emojis/622309-charmykitty.gif"> <br>
+  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width=auto height="250" alt="spinning arch logo" src="https://github.com/user-attachments/assets/49120dee-f816-441c-8e17-da3c1340b165"> <br>
 . .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
 ✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
 . .┊ 𝄞𝄢࿔ Name : Adalie<br>
@@ -66,3 +66,4 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 <br>
 ᓚᘏᗢ ᶻ z Z <br>
 ╰┈➤ @AdalieXO has logged off<br>
+<img width="1080" height=auto alt="download" src="https://github.com/user-attachments/assets/295b91ae-f757-471b-bb4b-ce0c9a9c95ef" />
