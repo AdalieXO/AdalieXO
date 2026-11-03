@@ -22,7 +22,7 @@
  <img src="https://skillicons.dev/icons?i=github,ps,azure,vscode,robloxstudio,obsidian,bootstrap,figma,git,sketchup&theme=light" /> <br>
  
 ⋮  ⌗  . ˚ ┆   OS    ᶻ  𝗓  𐰁 ˚ <br>
- <img src="https://skillicons.dev/icons?i=arch,kali,apple,linux,windows&theme=light" /> <br>
+ <img src="https://skillicons.dev/icons?i=arch,kali,windows,apple,linux&theme=light" /> <br>
   ”‧˚꒰ The End ୭ ˚. <br>
   
  ────୨ৎ────<br>
