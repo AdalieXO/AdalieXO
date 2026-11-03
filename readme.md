@@ -1,6 +1,6 @@
 >  !Use light mode for a better view! [💡](https://github.com/settings/appearance) <br>
 
-![Profile view counter](https://komarev.com/ghpvc/?username=adaliexo&base=1000&label=Views+X3&abbreviated=true&style=for-the-badge&color=lightgrey)
+![Profile view counter](https://komarev.com/ghpvc/?username=adaliexo&label=Views+X3&abbreviated=true&style=for-the-badge&color=lightgrey)
 
 <img alt="༝  ⠀⠀ ݁︎ ︎⠀⠀ __⠀݂" src="https://github.com/user-attachments/assets/f530fc1c-7d95-4866-b089-9afd95c64a01" /> <br>
 <div align="center">
