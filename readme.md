@@ -6,8 +6,9 @@
 <div align="center">
  
 <img alt="376928-cat-dizzy-spiral" src="https://github.com/user-attachments/assets/51c6de1b-aea9-471c-893c-d083f840e8b7" /><br>
-
-𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ <br> 
+<a href="https://linktr.ee/adaliegouveia">
+𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ
+</a> <br>
  
 ![blinkiesCafe-GE](https://github.com/user-attachments/assets/27b468ee-6c06-4e3e-9bd4-b152575a880d)
 <br>
