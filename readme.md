@@ -2,7 +2,7 @@
 
 ![Profile view counter](https://komarev.com/ghpvc/?username=adaliexo&label=Views+X3&abbreviated=true&style=for-the-badge&color=lightgrey)
 
-<img alt="༝  ⠀⠀ ݁︎ ︎⠀⠀ __⠀݂" src="https://github.com/user-attachments/assets/f530fc1c-7d95-4866-b089-9afd95c64a01" /> <br>
+<img alt="༝  ⠀⠀ ݁︎ ︎⠀⠀ __⠀݂" href="692167639-f530fc1c-7d95-4866-b089-9afd95c64a01.gif" /> <br>
 <div align="center">
  
 <img alt="376928-cat-dizzy-spiral" src="https://github.com/user-attachments/assets/51c6de1b-aea9-471c-893c-d083f840e8b7" /><br>
