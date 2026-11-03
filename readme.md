@@ -32,7 +32,7 @@
 
  <br>
 ╭─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╮ <br>
-  ‎ ‎  ‎ ‎  <img height=25px width=auto src="https://github.com/user-attachments/assets/46ec68e1-84c0-432e-8678-a2acf5338ea7">  <br>
+  ‎ ‎  ‎ ‎  <img height=25px width=auto src="https://github.com/AdalieXO/AdalieXO/blob/10c3744b89ced6a92efdb73a7aa65452f6b0022f/glitter-0fo3sjcgql4.gif">  <br>
 <img width=auto height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f67616c6178792d627261696e2d676f6c642e7" src="https://github.com/user-attachments/assets/1f804b93-9b2e-4f50-9cba-4588106d3004" />
 <img width=auto height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f70756c6c2d736861726b2d64656661756c742" src="https://github.com/user-attachments/assets/4b7d87fb-a7e3-494c-8633-f5389f25226a" />
 <img width=auto height="75" alt="yolo-default-be0bbff04951" src="https://github.com/user-attachments/assets/95401700-38b7-42c0-89d1-50ce27ce856b" />
