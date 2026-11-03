@@ -85,7 +85,7 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 . .╭──────────── ˎˊ˗ <br>
 ✿┊ᴍᴏʀᴇ! ₊˚⊹ <br>
 . .┊ ◟❀ᮬ࿔ Birthday : 07/04/####<br>
-. .┊꩜｡𐙚 Timezone : BST<<br>
+. .┊꩜｡𐙚 Timezone : BST<br>
 . .┊⋆˙ ☘︎ Hobby(s) : Models, Guitar, Coding<br>
 . .┊ᯓ⭑ Likes : Games and Making games/apps<br>
 . .┊*:･ Dislikes : Social Interactions<br>
