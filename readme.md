@@ -7,7 +7,8 @@
 
 <div align="center">
  
-<img alt="376928-cat-dizzy-spiral" src="https://github.com/user-attachments/assets/51c6de1b-aea9-471c-893c-d083f840e8b7" /><br>
+<img alt="376928-cat-dizzy-spiral" src="https://github.com/user-attachments/assets/51c6de1b-aea9-471c-893c-d083f840e8b7" />
+<br>
 <a href="https://linktr.ee/adaliegouveia">
 𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ
 </a> <br>
@@ -40,15 +41,18 @@
 ╰─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╯
 <br>
 
-<img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/user-attachments/assets/a6aff4ec-a0da-4f22-862e-68313211ea71" /> <br>
+<img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/user-attachments/assets/a6aff4ec-a0da-4f22-862e-68313211ea71" /> 
+<br>
 
 <img width="150" height="20" alt="blinkiesCafe-9Y" src="https://github.com/user-attachments/assets/a1805e5b-3984-4721-99f2-ebc50eac7ed0" />
+<br>
 
 </div>
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
-  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width=auto height="250" alt="spinning arch logo" src="https://github.com/user-attachments/assets/49120dee-f816-441c-8e17-da3c1340b165"> <br>
+  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width=auto height="250" alt="spinning arch logo" src="https://github.com/user-attachments/assets/49120dee-f816-441c-8e17-da3c1340b165"> 
+  <br>
 . .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
 ✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
 . .┊ 𝄞𝄢࿔ Name : Adalie<br>
@@ -92,4 +96,6 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 <br>
 ᓚᘏᗢ ᶻ z Z <br>
 ╰┈➤ @AdalieXO has logged off<br>
+
 <img width="1080" height=auto alt="download" src="https://github.com/user-attachments/assets/295b91ae-f757-471b-bb4b-ce0c9a9c95ef" />
+<br>
