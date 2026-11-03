@@ -2,12 +2,12 @@
 
 ![Profile view counter](https://komarev.com/ghpvc/?username=adaliexo&label=Views+X3&abbreviated=true&style=for-the-badge&color=lightgrey)
 
-<img width="1280" height="720" alt="692167639-f530fc1c-7d95-4866-b089-9afd95c64a01" src="https://github.com/user-attachments/assets/c76df67c-da20-4856-b87f-6d94b906d3f6" />
+<img width="1280" height="720" alt="692167639-f530fc1c-7d95-4866-b089-9afd95c64a01" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692167639-f530fc1c-7d95-4866-b089-9afd95c64a01.gif" />
 <br>
 
 <div align="center">
  
-<img alt="376928-cat-dizzy-spiral" src="https://github.com/user-attachments/assets/51c6de1b-aea9-471c-893c-d083f840e8b7" />
+<img alt="376928-cat-dizzy-spiral" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692170110-51c6de1b-aea9-471c-893c-d083f840e8b7.png" />
 <br>
 <a href="https://linktr.ee/adaliegouveia">
 𑣲┆𝙰𝚍𝚊𝚕𝚒𝚎˚.⋆ֹ
@@ -41,17 +41,17 @@
 ╰─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╯
 <br>
 
-<img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/user-attachments/assets/a6aff4ec-a0da-4f22-862e-68313211ea71" /> 
+<img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692179583-a6aff4ec-a0da-4f22-862e-68313211ea71.gif" /> 
 <br>
 
-<img width="150" height="20" alt="blinkiesCafe-9Y" src="https://github.com/user-attachments/assets/a1805e5b-3984-4721-99f2-ebc50eac7ed0" />
+<img width="150" height="20" alt="blinkiesCafe-9Y" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692179745-a1805e5b-3984-4721-99f2-ebc50eac7ed0.gif" />
 <br>
 
 </div>
 
 ⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
 ‎ ‎ ‎ ‎ ‎‎ /)‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎/) <br>
-  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width=auto height="250" alt="spinning arch logo" src="https://github.com/user-attachments/assets/49120dee-f816-441c-8e17-da3c1340b165"> 
+  𐔌⌯◝ ᗜ◜⌯𐦯.ᐟ.ᐟ₎₎ ᴍʏ ɪɴᴛʀᴏ .ᐟ.ᐟ ✩࿐࿔ <img align="right" width=auto height="250" alt="spinning arch logo" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692175059-49120dee-f816-441c-8e17-da3c1340b165.gif"> 
   <br>
 . .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
 ✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
@@ -97,5 +97,5 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 ᓚᘏᗢ ᶻ z Z <br>
 ╰┈➤ @AdalieXO has logged off<br>
 
-<img width="1080" height=auto alt="download" src="https://github.com/user-attachments/assets/295b91ae-f757-471b-bb4b-ce0c9a9c95ef" />
+<img width="1080" height=auto alt="download" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692165610-295b91ae-f757-471b-bb4b-ce0c9a9c95ef.jpg" />
 <br>
