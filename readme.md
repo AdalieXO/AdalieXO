@@ -19,7 +19,7 @@
 ────୨ৎ────<br>
 
 ˚ ༘  ೀ Languages. ⋆ ｡˚ <br>
- <img src="https://skillicons.dev/icons?i=md,mysql,css,py,js,html&theme=light" /> <br>
+ <img src="https://skillicons.dev/icons?i=md,php,mysql,css,py,js,html&theme=light" /> <br>
  
 ౿ ݁  . Software ︵ ｡ Ꮺ ˚ <br>
  <img src="https://skillicons.dev/icons?i=github,ps,azure,vscode,robloxstudio,obsidian,bootstrap,figma,git,sketchup&theme=light" /> <br>
