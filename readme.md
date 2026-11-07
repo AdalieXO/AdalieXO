@@ -40,7 +40,17 @@
 <img width=auto height="75" alt="68747470733a2f2f6769746875622e6769746875626173736574732e636f6d2f696d616765732f6d6f64756c65732f70726f66696c652f616368696576656d656e74732f717569636b647261772d64656661756c742e7" src="https://github.com/user-attachments/assets/0a8ba2ef-4dab-46b3-87c9-226fa173a9fd" /> <br>
 ╰─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╯
 <br>
-
+<br>
+୨﹒˖˚──﹕My Projects ♡﹕──˚˖﹒୧ 
+<br>
+<br>
+<a href="https://adaliexo.github.io/pswd.gen">
+ ๋࣭ 𓏏𓏏﹒Password Generator　𓉳ིྀ⠀
+</a>
+<br>
+<br>
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
+<br>
 <img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692179583-a6aff4ec-a0da-4f22-862e-68313211ea71.gif" /> 
 <br>
 
