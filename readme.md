@@ -22,7 +22,7 @@
  <img src="https://skillicons.dev/icons?i=md,php,mysql,css,py,js,html&theme=light" /> <br>
  
 ౿ ݁  . Software ︵ ｡ Ꮺ ˚ <br>
- <img src="https://skillicons.dev/icons?i=github,ps,azure,vscode,robloxstudio,obsidian,bootstrap,figma,git,sketchup&theme=light" /> <br>
+ <img src="https://skillicons.dev/icons?i=github,ps,azure,vscode,robloxstudio,obsidian,bootstrap,figma,blender,git,sketchup&theme=light" /> <br>
  
 ⋮  ⌗  . ˚ ┆   OS    ᶻ  𝗓  𐰁 ˚ <br>
  <img src="https://skillicons.dev/icons?i=linux,arch,kali,windows,apple&theme=light" /> <br>
