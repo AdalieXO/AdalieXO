@@ -74,7 +74,7 @@
 . .╭∪─∪────────── ✮⋆˙ˎˊ˗ <br>
 ✿┊ɢᴇɴᴇʀᴀʟ ₊˚⊹ <br>
 . .┊ 𝄞𝄢࿔ Name : Adalie<br>
-. .┊꩜｡𐙚 Country : <img width=25px height=auto alt=UK src="https://cdn3.emoji.gg/emojis/76564-uk-flag.png"> <img width=20px height=auto alt=Portugal src="https://thumb.wikimedia.org/wikipedia/commons/thumb/a/a4/Flag_of_Madeira.svg/330px-Flag_of_Madeira.svg.png?utm_source=en.wikipedia.org&utm_campaign=parser&utm_content=thumbnail"> <br>
+. .┊꩜｡𐙚 Nationality : <img width=25px height=auto alt=UK src="https://cdn3.emoji.gg/emojis/76564-uk-flag.png"> <img width=20px height=auto alt=Madeira(Portugal) src="https://thumb.wikimedia.org/wikipedia/commons/thumb/a/a4/Flag_of_Madeira.svg/330px-Flag_of_Madeira.svg.png?utm_source=en.wikipedia.org&utm_campaign=parser&utm_content=thumbnail"> <br>
 . .┊⋆˙ ☘︎ Age : 17 <br>
 . .┊ᯓ⭑ Pronouns : She/They <br>
 . .┊*:･ Gender : Female 🏳️‍⚧️<br>
