@@ -107,13 +107,8 @@ Creme Caramel <img src="https://cdn3.emoji.gg/emojis/52115-caramelflan.gif" alt=
 . .┊⋆˙ ☘︎ Hobby(s) : Models, Guitar, Coding<br>
 . .┊ᯓ⭑ Likes : Games and Making games/apps<br>
 . .┊*:･ Dislikes : Social Interactions<br>
-. .┊ ࣪˖ ִֶָ𐀔 Warning !! : Have a nice day!!<br> 
-. .╰─────────────  ✮⋆˙ˎˊ˗ <br>
-⸝⸝ᯓ :ִ ࣪✮ ݁∶ ᯓ :ִ ࣪✧ ݁∶ᯓ :ִ ࣪✩ ݁∶⊹˖ᯓ⭑⸝⸝ <br>
-![0275-stressed](https://github.com/user-attachments/assets/e2448589-8eb0-46f2-92d9-373c9bd5f415)
-<br>
+. .┊ ࣪˖ ִֶָ𐀔 Error !! : Have a nice day!!<br> 
+. .╰──────────➤ @AdalieXO has logged off <br>
 ᓚᘏᗢ ᶻ z Z <br>
-╰┈➤ @AdalieXO has logged off<br>
-
 <img width="1080" height=auto alt="download" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692165610-295b91ae-f757-471b-bb4b-ce0c9a9c95ef.jpg" />
 <br>
