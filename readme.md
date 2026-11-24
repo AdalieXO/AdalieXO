@@ -77,7 +77,7 @@
 . .┊꩜｡𐙚 Country : <img width=25px height=auto alt=UK src="https://cdn3.emoji.gg/emojis/76564-uk-flag.png"> <img width=20px height=auto alt=Portugal src="https://cdn3.emoji.gg/emojis/6871-portugal.png"> <br>
 . .┊⋆˙ ☘︎ Age : 17 <br>
 . .┊ᯓ⭑ Pronouns : She/They <br>
-. .┊*:･ Gender : Female <br>
+. .┊*:･ Gender : Female 🏳️‍⚧️<br>
 . .┊ ࣪˖ ִֶָ𐀔 MBTI : INFP-T <br>
 . .╰────────────  ˎˊ˗ <br>
 . .╭──────────── ˎˊ˗ <br>
