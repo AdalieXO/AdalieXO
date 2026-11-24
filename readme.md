@@ -29,7 +29,8 @@
   ”‧˚꒰ The End ୭ ˚. <br>
   
  ────୨ৎ────<br>
-
+<img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692179583-a6aff4ec-a0da-4f22-862e-68313211ea71.gif" /> 
+<br>
  <br>
 ╭─────────-·-ˋˏ-༻𖤓༺-ˎˊ·-─────────╮ <br>
   ‎ ‎  ‎ ‎  <img height=25px width=auto src="https://github.com/AdalieXO/AdalieXO/blob/10c3744b89ced6a92efdb73a7aa65452f6b0022f/glitter-0fo3sjcgql4.gif">  <br>
@@ -58,8 +59,6 @@
 <br>
 <br>
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 .
-<br>
-<img width="150" height="20" alt="blinkiesCafe-DO" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692179583-a6aff4ec-a0da-4f22-862e-68313211ea71.gif" /> 
 <br>
 
 <img width="150" height="20" alt="blinkiesCafe-9Y" src="https://github.com/AdalieXO/AdalieXO/blob/0fb0a7264dfbb4d3b0f2262297daede0bb2155cc/692179745-a1805e5b-3984-4721-99f2-ebc50eac7ed0.gif" />
