@@ -44,6 +44,10 @@
 ୨﹒˖˚──﹕My Projects ♡﹕──˚˖﹒୧ 
 <br>
 <br>
+<a href="https://adaliexo.github.io/CV">
+ ๋࣭ 𓏏𓏏﹒Personal CV Site　𓉳ིྀ⠀
+</a>
+<br>
 <a href="https://adaliexo.github.io/pswd.gen">
  ๋࣭ 𓏏𓏏﹒Password Generator　𓉳ིྀ⠀
 </a>
